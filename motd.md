@@ -1,0 +1,1 @@
+![Моя картинка](https://i.postimg.cc/HskNB41n/Snimok-ekrana-2026-06-30-125730.png)
